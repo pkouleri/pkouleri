@@ -1,4 +1,4 @@
-### Hi there 👋
+# Hi, I am Pinelopi! 👋
 
 I am a Greek 🇬🇷 living in the UK 🇬🇧!
 
