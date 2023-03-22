@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+I am a Greek 🇬🇷 living in the UK 🇬🇧!
+
+- 😄 Pronouns: she/her
+- 🫅 Personality Type: [INFJ-T](https://www.16personalities.com/infj-personality)
+
 <!--
 **pkouleri/pkouleri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
